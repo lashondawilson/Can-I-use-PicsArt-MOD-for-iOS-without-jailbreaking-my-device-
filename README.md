@@ -1,0 +1,2 @@
+# Can-I-use-PicsArt-MOD-for-iOS-without-jailbreaking-my-device-
+If you want to use PicsArt or any other app on iOS, it's recommended to download it from the official App Store to ensure you are using a legitimate and secure version. Jailbreaking your device or using unauthorized versions of apps can expose your device to security vulnerabilities and other risks. https://www.picsartgeeks.com/picsart-for-ios/
